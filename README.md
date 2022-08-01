@@ -1,0 +1,1 @@
+# TheCureTrust-Privacy-Policy
